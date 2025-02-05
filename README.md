@@ -4,7 +4,7 @@
 
 <p align="center">
   <a href="https://899f4ecg1yh37q5hop1ckctjwv.hop.clickbank.net">
-    <img src="https://i.imgur.com/PVS8ktw.png" width="640">
+    <img src="https://i.imgur.com/PVS8ktw.png" width="370">
   </a>
 </p>
 
