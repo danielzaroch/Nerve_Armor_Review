@@ -4,7 +4,7 @@
 
 <p align="center">
   <a href="https://899f4ecg1yh37q5hop1ckctjwv.hop.clickbank.net">
-    <img src="https://i.imgur.com/PVS8ktw.png" width="370">
+    <img src="https://i.imgur.com/PVS8ktw.png" width="300">
   </a>
 </p>
 
@@ -146,10 +146,11 @@ Benfotiamine is a **fat-soluble version of vitamin B1**, making it **more absorb
 
 <p align="center">
   <a href="https://899f4ecg1yh37q5hop1ckctjwv.hop.clickbank.net">
-    <img src="https://i.imgur.com/rGPJ6UX.png" width="640">
+    <img src="https://i.imgur.com/rGPJ6UX.png" width="370">
   </a>
 </p>
 
+[✅Click Here to Know More About Nerve Amor](https://899f4ecg1yh37q5hop1ckctjwv.hop.clickbank.net"%20\o%20"Liv%20Pure"%20\t%20"_blank)
 ## Understanding the Egg Yolk Trick
 
 The Nerve Armor “egg yolk trick” is a unique method that boosts the supplement's power. It links raw egg yolks to nerve health and fighting off **parasite cells**, known as "termite cells." These cells can harm nerve tissues, causing health problems.
